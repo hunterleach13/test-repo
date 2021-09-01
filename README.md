@@ -1,4 +1,4 @@
 First GitHub!
 
 
-Coming soon?!
+Nice try. You thought. Done.
